@@ -1,1 +1,1 @@
-# erikgrinaker.github.io
+[erik@grinaker.me](mailto:erik@grinaker.me)
